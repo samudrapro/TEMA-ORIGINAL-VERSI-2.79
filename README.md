@@ -22,7 +22,7 @@ Halo semuanya! Ini adalah halaman resmi untuk mengunduh Tema Versi 2.79 dari Sam
 ### 📥 [DOWNLOAD TEMA VERSI 2.79](https://www.mediafire.com/folder/0a0s3gkjo0bau/Tema+Original+2.79)
 
 ---
-### 📺 [TUTORIAL INSTALL APK](https://youtube.com/shorts/9dJ0PDbvlt4)
+### 📺 [TUTORIAL INSTALL APK/MATIKAN PLAY PROTECT](https://youtube.com/shorts/9dJ0PDbvlt4)
 
 ---
 ### 🌐 Kunjungi Juga:
