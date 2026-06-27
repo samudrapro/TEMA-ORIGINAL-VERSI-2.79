@@ -18,6 +18,10 @@ Halo semuanya! Ini adalah halaman resmi untuk mengunduh Tema Versi 2.79 dari Sam
 4. Matikan play protect jika gagal install
 5. Login dan Enjoy the game!
 
+*Catatan :*
+- 32 Bit untuk Android 13 ke bawah.
+- 64 Bit untuk Android 14 ke atas.
+
 ⬇️Silakan klik tulisan download di bawah ini :⬇️
 ### 📥 [DOWNLOAD TEMA VERSI 2.79](https://www.mediafire.com/folder/0a0s3gkjo0bau/Tema+Original+2.79)
 
