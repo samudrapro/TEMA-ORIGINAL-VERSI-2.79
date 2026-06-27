@@ -10,7 +10,7 @@ Halo semuanya! Ini adalah halaman resmi untuk mengunduh Tema Versi 2.79 dari Sam
 * Lebih Ringan dan stabil.
 * On/Off Animasi Login.
 
-CARA DOWNLOAD  DAN INSTALL
+**CARA DOWNLOAD  DAN INSTALL**
 
 1. Download APK Domino terbaru
 2. Hapus APK Domino lama terlebih dahulu
@@ -22,7 +22,7 @@ Silakan klik tulisan download di bawah ini :
 ### 📥 [DOWNLOAD TEMA VERSI 2.79](https://kumpulan-tema-hgi.blogspot.com/2026/06/tema-original-279.html)
 
 ---
-### 📺 [TUTORIAL INSTALL APK](https://youtube.com/shorts/9dJ0PDbvlt4)
+### 📺 [TUTORIAL INSTALL APK/MATIKAN PLAY PROTECT](https://youtube.com/shorts/9dJ0PDbvlt4)
 
 ---
 ### 🌐 Kunjungi Juga:
@@ -36,7 +36,5 @@ Silakan klik tulisan download di bawah ini :
 *- Game ini hanya hiburan semata, jangan menjadikan sebagai tempat matapencaharian.*
 
 *- Hati-hati dengan channel Palsu yang mengatasnamakan samudra pro.*
-
-*- Hapus APK LAMA, lalu install APK yang baru.*
 
 Terima kasih sudah mendukung Samudra Pro!
