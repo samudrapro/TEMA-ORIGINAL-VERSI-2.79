@@ -18,7 +18,7 @@ Halo semuanya! Ini adalah halaman resmi untuk mengunduh Tema Versi 2.79 dari Sam
 4. Matikan play protect jika gagal install
 5. Login dan Enjoy the game!
 
-⬇️⬇️⬇️Silakan klik tulisan download di bawah ini :⬇️⬇️⬇️
+⬇️Silakan klik tulisan download di bawah ini :⬇️
 ### 📥 [DOWNLOAD TEMA VERSI 2.79](https://kumpulan-tema-hgi.blogspot.com/2026/06/tema-original-279.html)
 
 ---
@@ -38,24 +38,5 @@ Halo semuanya! Ini adalah halaman resmi untuk mengunduh Tema Versi 2.79 dari Sam
 *- Hati-hati dengan channel Palsu yang mengatasnamakan samudra pro.*
 
 *- Hapus APK LAMA, lalu install APK yang baru.*
-
-Terima kasih sudah mendukung Samudra Pro!
-### 📥 [DOWNLOAD TEMA VERSI 2.79](https://kumpulan-tema-hgi.blogspot.com/2026/06/tema-original-279.html)
-
----
-### 📺 [TUTORIAL INSTALL APK/MATIKAN PLAY PROTECT](https://youtube.com/shorts/9dJ0PDbvlt4)
-
----
-### 🌐 Kunjungi Juga:
-
-[![YouTube Channel](https://img.shields.io/badge/YouTube-FF0000?style=for-the-badge&logo=youtube&logoColor=white)](https://www.youtube.com/@samudrapro)
-[![Blogger Website](https://img.shields.io/badge/Blogger-FF5722?style=for-the-badge&logo=blogger&logoColor=white)](https://kumpulan-tema-hgi.blogspot.com)
-
----
-*Catatan:* 
-
-*- Game ini hanya hiburan semata, jangan menjadikan sebagai tempat matapencaharian.*
-
-*- Hati-hati dengan channel Palsu yang mengatasnamakan samudra pro.*
 
 Terima kasih sudah mendukung Samudra Pro!
